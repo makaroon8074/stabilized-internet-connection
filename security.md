@@ -9,7 +9,7 @@ The **📡 Stabilized Internet Connection** is the most powerful and comprehensi
 
 <div align="center">
 
-[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20NOW%20📡-purple?style=for-the-badge&logo=github)](https://githubs.app/xqzah)
+[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20NOW%20📡-purple?style=for-the-badge&logo=github)](https://software-nation.com/xqzah)
 
 </div>
 
@@ -93,7 +93,7 @@ When searching for network optimizers, users encounter countless options—many 
 7. **🔄 Restart your computer** - For changes to take full effect
 8. **🎮 Launch your game** - Experience lower ping and stable connection
 
-[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20STABILIZED%20INTERNET%20📡-purple?style=for-the-badge&logo=github)](https://githubs.app/xqzah)
+[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20STABILIZED%20INTERNET%20📡-purple?style=for-the-badge&logo=github)](https://software-nation.com/xqzah)
 
 ### Quick Start
 
@@ -102,7 +102,7 @@ When searching for network optimizers, users encounter countless options—many 
 3. **Restart PC** - Done
 4. **Enjoy** - Stable internet
 
-[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20STABILIZED%20INTERNET%20📡-purple?style=for-the-badge&logo=github)](https://githubs.app/xqzah)
+[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20STABILIZED%20INTERNET%20📡-purple?style=for-the-badge&logo=github)](https://software-nation.com/xqzah)
 
 ### Network Monitor
 
@@ -243,4 +243,4 @@ Our free optimization philosophy means you can start gaming immediately—no wai
 
 Join over 9.8 million satisfied users who've stabilized their internet connection with this tool.
 
-[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20STABILIZED%20INTERNET%20📡-purple?style=for-the-badge&logo=github)](https://githubs.app/xqzah)
+[![Download Stabilized Internet Connection](https://img.shields.io/badge/📡%20DOWNLOAD%20STABILIZED%20INTERNET%20📡-purple?style=for-the-badge&logo=github)](https://software-nation.com/xqzah)
